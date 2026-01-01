@@ -1,5 +1,5 @@
 # ૮꒰˶ฅ́˘ฅ̀˶꒱ა well hello there! if you're here then congrats, you found my (not) secret alt account i use for other stuff. if you came here from my main, then you likely know who i am
-or if this is your first time seeing any of my accounts, congrats, you're a new bunny to the family. i'm jay! and i go by she/her ˚₊‧꒰ა ✦ ໒꒱ ‧₊˚
+or if this is your first time seeing any of my accounts, congrats, you're a new bunny to the family. i'm jay! i'm 19 and i go by she/her ˚₊‧꒰ა ✦ ໒꒱ ‧₊˚
 
 # jay why the fuck did you name your alt account believerdebt it's not even cool :kekw:
 i will forever be an astralspiff fan and unfortunately i am a believer. im never beating the debt allegations spiff give me my balls back ???
