@@ -8,6 +8,7 @@ i will forever be an astralspiff fan and unfortunately i am a believer. im never
 proshippers + darkshippers, transphobes, homophobes, zoopiles .. well would you look at that .. basic dni in general + minors under 13/adults over 27* and anti age regressors ?? if thats a
 thing. basically if you have a problem with age regressing yeah block me. i age regress as a coping mechanism for childhood trauma. got a problem with that? shove it in your ass. and if you
 don't like it? shove it further!
+
 *yes im fully aware some of my f/os are older than that (blinks at my phigting f/os) and that some of the streamers i watch are also over the specified age (spiff is 28 as far as i know from google)
 but that doesnt mean im not allowed to feel uncomfortable since most fellow adults i met here (21-39) were .. ew. just .. ew. aside from blizzo if you see this hi blizzo!!
 
