@@ -7,7 +7,7 @@ or if this is your first time seeing any of my accounts, congrats, you're a new 
 i will forever be an astralspiff fan and unfortunately i am a believer. im never beating the debt allegations spiff give me my balls back ???
 
 # i didn't really set up a dni list on my main account but i probably should, so here are some of my dnis that i can think of right now ദ്ദി ˉ͈̀꒳ˉ͈́ )✧
-proshippers + darkshippers, transphobes, homophobes, zoopiles .. well would you look at that .. basic dni in general + minors under 13/adults over 27* and anti age regressors ?? if thats a
+proshippers + darkshippers, transphobes, homophobes, zoophiles .. well would you look at that .. basic dni in general + minors under 13/adults over 27* and anti age regressors ?? if thats a
 thing. basically if you have a problem with age regressing yeah block me. i age regress as a coping mechanism for childhood trauma. got a problem with that? shove it in your ass. and if you
 don't like it? shove it further!
 
