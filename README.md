@@ -12,8 +12,7 @@ thing. basically if you have a problem with age regressing yeah block me. i age 
 i shouldn't even have to say this but age regressing is NOT age play. it's a perfectly healthy and SAFE FOR WORK (SFW) coping mechanism a lot of people use for different traumas, mostly
 childhood trauma.
 
-*yes im fully aware some of my f/os are older than that (blinks at my phigting f/os) and that some of the streamers i watch are also over the specified age (spiff is 28 as far as i know from google)
-but that doesnt mean im not allowed to feel uncomfortable since most fellow adults i met here (21-39) were .. ew. just .. ew. aside from blizzo if you see this hi blizzo!!
+*yes im fully aware some of my f/os are older than that (blinks at my phigting f/os) and that some of the streamers i watch are also over the specified age but that doesnt mean im not allowed to feel uncomfortable since most fellow adults i met here (21-39) were .. ew. just .. ew. aside from blizzo if you see this hi blizzo!!
 
 # also yes, i am a yumeshipper !! (a sharing one, doubles are encouraged to interact hell yeah)
 
